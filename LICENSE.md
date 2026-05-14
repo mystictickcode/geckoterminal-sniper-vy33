@@ -1,4 +1,4 @@
-# 
+# Get the ultimate geckoterminal sniper bot with high-frequency MEV Bot for geckoterminal sniper bot | auto-buy & token-launch-monitoring. Featuring auto-buy and
 
 
 
